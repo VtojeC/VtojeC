@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VtojeC
-- 👀 I’m interested in ... potatoes farming
+- 👀 I’m interested in ... donuts
 - 🌱 I’m currently learning ... ASP
 - 💞️ I’m currently collaborating on ... project
 - 📫 How to reach me ... with your hand
